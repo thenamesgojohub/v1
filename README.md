@@ -47,3 +47,7 @@ Feel free to suggest improvements or report bugs by opening an issue or creating
 📧 Contact
 
 For inquiries, contact the repository owner.
+
+# Youtube: @thenamesgojohub
+# Discord Server: https://discord.gg/Kr7vtm4wwJ
+# Tiktok: soon
